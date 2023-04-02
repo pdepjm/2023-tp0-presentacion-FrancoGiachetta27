@@ -10,5 +10,5 @@ ___
 - Me gusta escuchar música, particularmente son fan the Iron Maiden!
 - Me gusta el fútbol y soy fortinero 🔵⚪ (pocos pueden con su grandeza) 
 - Soy bastante autodicata, me gusta aprender por mi mismo. Por ejemplo la guitarra, aunque la tengo medio olvidada 😔
-- Creo ser el único cuyo alfajor favorito es el Guamayén.
+- Creo ser el único cuyo alfajor favorito es el Guaymallén.
 - Me gusta mucho la matemática y disfruto ayudando a que la gente la entienda
